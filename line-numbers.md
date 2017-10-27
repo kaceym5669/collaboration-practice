@@ -1,7 +1,7 @@
-#### 1 Kacey is the awesomest 
+#### 1 kacey is the coolest 
 
 #### 2
-#### 3 Rahat
+#### 3 Rahat 1
 #### 4
 #### 5
 #### 6
